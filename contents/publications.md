@@ -1,6 +1,6 @@
 #### Submitted
 
-- Yang, H. J.& <strong>Chen, H. L.</strong>* (2025). Languages Museum Construction Experiences and Implications for China. Journal of Hezhou University <strong>Under Review</strong>
+- Yang, H. J.& <strong>Chen, H. L.</strong> (2025). Languages Museum Construction Experiences and Implications for China. Journal of Hezhou University <strong>Under Review</strong>
 
 #### Undergraduate Thesis
 

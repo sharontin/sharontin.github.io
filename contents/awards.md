@@ -4,4 +4,4 @@
 
 - Outstanding Graduate Award (CUMT), 2025.
 
-- National Inspirational Scholarship (Ministry of Education, China), 2022-2025.
+- National Inspirational Scholarship （国家励志奖学金）(Ministry of Education, China), 2022-2025.
