@@ -1,12 +1,7 @@
+- 1st Prize, the 9th National Spanish Dubbing Contest (in collaboration with Instituto Cervantes de Beijing) （第九届全国高校西班牙语配音大赛一等奖）; CGTN Interview (China Global Television Network): https://espanol.cgtn.com/news/2025-04-16/1912300768593199106/index.html
+
+- 2nd Prize, National Spanish Oratory Contest “Estrellas de Español” (held by SISU–RAE center)
 
 - Outstanding Graduate Award (CUMT), 2025.
 
-- National Scholarship for Graduate Students (Ministry of Education, China), 2024.
-
-- First-Prize Graduate Academic Scholarship (CUMT), 2023 & 2024.
-
-- Outstanding Undergraduate Thesis Award (Jiangsu, China), 2022.
-
-- First-Prize Corporate Scholarship (CUMT), 2020.
-
-- First-Prize Undergraduate Academic Scholarship (CUMT), 2019.
+- National Inspirational Scholarship (Ministry of Education, China), 2022-2025.
