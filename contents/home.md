@@ -10,7 +10,7 @@ My academic interests focus on computational linguistics, particularly in Spanis
 
 In case you would like to read the IPA and pronounce my name accurately, here are the transcriptions:
 
-陈汉林 — Chen, Hanlin / Chan, Hon Lam
+<strong>陈汉林</strong> — Chen, Hanlin / Chan, Hon Lam
 
 Cantonese: [t͡sɐn hɔn lɐm]
 
