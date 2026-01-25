@@ -2,6 +2,6 @@
 
 - 2nd Prize, National Spanish Oratory Contest “Estrellas de Español” (held by SISU–RAE center)
 
-- Outstanding Graduate Award (CUMT), 2025.
+- Outstanding Graduate Award (GDUFS), 2025.
 
 - National Inspirational Scholarship （<strong>国家励志奖学金</strong>）(Ministry of Education, China), 2022-2025.
