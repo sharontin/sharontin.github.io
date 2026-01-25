@@ -21,7 +21,7 @@ Email: hanlinramon[at]gmail.com
 
 #### Education
 M.E., Theoretical and Applied Linguistics, Pompeu Fabra University (UPF), 2025-2026.\
-B.E., Spanish Philology, Guangdong University of Foreign Studies (GDUFS), 2021-2025.\
+B.E., Hispanic Philology, Guangdong University of Foreign Studies (GDUFS), 2021-2025.\
 Exchange program., Spanish Linguistics, University of Alicante (UA), 2023-2024.
 
 #### Research Interests
