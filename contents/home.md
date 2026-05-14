@@ -1,29 +1,17 @@
+你好！我叫陈绮婷，你也可以叫我Sharon。我毕业于广东财经大学商务英语专业。
 
-📄 My most recent CV: 
-[English CV](https://hanlincl.github.io/CV_Chenhanlin_English.pdf)
-[Spanish CV](https://hanlincl.github.io/Currículum_vitae_Ramón_Chen.pdf)
-[Chinese CV](https://hanlincl.github.io/%E9%99%88%E6%B1%89%E6%9E%97%20%E7%AE%80%E5%8E%86.pdf)
+我的兴趣是影视剪辑，目前在bilibili、小红书、抖音等平台独立运营我的个人账号，发布内容主要是影视相关的原创剧情，全平台点赞量30000+，粉丝数量1000+，欢迎想要了解的朋友联系我了解更多~
 
-Hi! You can call me Lin, or by my Spanish name Ramón (adapted to English as Raymond). I am currently a student in the MLTA (Màster en Lingüística Teòrica i Aplicada) at Pompeu Fabra University.
+我目前居住在广州，也在广州长大，所以我会说广东话和普通话。我考取了英语专业八级优秀，英语也是我的工作语言。我也在学习法语，能够做到日常对话（约欧标A2）。我对文学非常感兴趣，特别是英美文学领域，业余也阅读很多中国近代史相关书籍，希望可以遇到更多同好一起讨论！
 
-My academic interests focus on phonological perception in bilingualism and computational linguistics, particularly in Spanish, English, and Chinese—three languages in which I am also proficient. I am from Guangzhou (Canton), China, and my native languages are Cantonese and Mandarin Chinese. I have foundational knowledge of the phonological systems of Portuguese, French, and Russian and I am currently learning Catalan at UPF.
-
-In case you would like to pronounce my name accurately by reading IPA, here are the transcriptions:
-
-<strong>陈汉林</strong> — Chan, Hon lam / Chen, Hanlin
-
-Cantonese: [t͡sɐn hɔn lɐm]
-
-Mandarin: [t͡ʂən ha̤n lin]
-
-#### Contact
-Email: hanlinramon[at]gmail.com
-
-#### Education
-M.A., Theoretical and Applied Linguistics, Pompeu Fabra University (UPF), 2025-2026.\
-B.A., Hispanic Philology, Guangdong University of Foreign Studies (GDUFS), 2021-2025.\
-Exchange program., Spanish Linguistics, University of Alicante (UA), 2023-2024.
-
-#### Research Interests
-Phonological Perception in Bilingualism, Natural Language Processing, Second Language Acquisition, Chinese Dialectology
+#### 联系方式
+Bussiness Email: sharonting71[at]outlook.com
+Personal Email: 896335271@qq.com
+#### 教育背景
+文学学士，商务英语专业，广东财经大学，2019-2023.\
+#### 工作经历
+SEO推广专员（运营），联合汇盈数据技术有限公司，2023-2024
+室内设计师，名之匠装饰设计公司，2025-至今
+#### 个人兴趣
+影视剪辑、羽毛球、语言学习
 

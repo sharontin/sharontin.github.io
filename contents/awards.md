@@ -1,7 +1,3 @@
-- 1st Prize, the 9th National Spanish Dubbing Contest (in collaboration with Instituto Cervantes de Beijing) （<strong>第九届全国高校西班牙语配音大赛一等奖</strong>）; CGTN Interview (China Global Television Network): https://espanol.cgtn.com/news/2025-04-16/1912300768593199106/index.html
+- 商务英语知识竞赛全国一等奖
 
-- 2nd Prize, National Spanish Oratory Contest “Estrellas de Español” (held by SISU–RAE center)
-
-- Outstanding Graduate Award (GDUFS), 2025.
-
-- National Inspirational Scholarship （<strong>国家励志奖学金</strong>）(Ministry of Education, China),
+- 广东财经大学2022-2023学年综合奖学金一等奖
