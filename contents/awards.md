@@ -4,4 +4,4 @@
 
 - Outstanding Graduate Award (GDUFS), 2025.
 
-- National Inspirational Scholarship （<strong>国家励志奖学金</strong>）(Ministry of Education, China), 2022-2025.
+- National Inspirational Scholarship （<strong>国家励志奖学金</strong>）(Ministry of Education, China),
